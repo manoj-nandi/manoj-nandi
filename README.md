@@ -14,7 +14,7 @@
 - Feel free to connect with me on [LinkedIn]([your-linkedin-profile](https://www.linkedin.com/in/manojnandi107/)) 
 
 ## 😄 Pronouns
-- He/Him
+- He
 
 ## ⚡ Fun Fact
 - I love solving puzzles and challenges in my spare time!
